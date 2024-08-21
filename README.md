@@ -8,4 +8,4 @@
 
 <p align="center"
 
-[rentry](https://rentry.co/melon-float)
+[rentry](https://rentry.co/melon-float) ❀ [forms](https://docs.google.com/forms/d/e/1FAIpQLSfD87hycKBkQ2JJXUvY9ZHH2H9DR0TEX5E95J1Twmb5uJSpSw/viewform)
